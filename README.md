@@ -32,8 +32,7 @@ Atualmente, busco oportunidades de **meio turno (20h semanais)**, prioritariamen
 ## 📄 Meus Currículos Específicos
 Como possuo experiência sólida em frentes distintas, disponibilizo meus currículos direcionados abaixo:
 
-4. ⚙️ [Currículo - PCP, Produção e Logística](link-do-repositorio-producao)
-1. 🍎 [Currículo - Professor Regente e Monitor](https://github.com/user-attachments/files/25771994/Curriculo._.Raul.Monteiro.Ceccagno._.Professor.pdf)
-2. 🤝 [Currículo - Cuidador Educacional](https://github.com/user-attachments/files/25772070/Curriculo._.Raul.Monteiro.Ceccagno._.Cuidador.pdf)
-3. 📊 [Currículo - Analista de Custos e Financeiro](https://github.com/user-attachments/files/25772119/Curriculo._.Raul.Monteiro.Ceccagno._.Custos.pdf)
-4. ⚙️ [Currículo - PCP, Produção e Logística](https://github.com/user-attachments/files/25772140/Curriculo._.Raul.Monteiro.Ceccagno._.Producao.pdf)
+1. 🍎 [Currículo - Professor Regente e Monitor.PDF](https://github.com/user-attachments/files/25771994/Curriculo._.Raul.Monteiro.Ceccagno._.Professor.pdf)
+2. 🤝 [Currículo - Cuidador Educacional.PDF](https://github.com/user-attachments/files/25772070/Curriculo._.Raul.Monteiro.Ceccagno._.Cuidador.pdf)
+3. 📊 [Currículo - Analista de Custos e Financeiro.PDF](https://github.com/user-attachments/files/25772119/Curriculo._.Raul.Monteiro.Ceccagno._.Custos.pdf)
+4. ⚙️ [Currículo - PCP, Produção e Logística.PDF](https://github.com/user-attachments/files/25772140/Curriculo._.Raul.Monteiro.Ceccagno._.Producao.pdf)
