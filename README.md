@@ -1,7 +1,9 @@
 # Raul Monteiro Ceccagno
 **Gestão Financeira | Técnico em Magistério | Rotinas Operacionais**
 
-📍 Caxias do Sul, RS | 📧 raul.ceccagno@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/raul-ceccagno) | 📌 [Pinterest](https://br.pinterest.com/RaulCeccagno/)
+📍 Caxias do Sul, RS | 📧 raul.ceccagno@gmail.com 
+
+🌐 [Hub (WhichAItoBuy)](https://raul.whichaitobuy.com/) | 💼 [LinkedIn](https://www.linkedin.com/in/raul-ceccagno) | 📝 [Medium](https://raul-ceccagno.medium.com/) | 🐦 [X (Twitter)](https://x.com/RaulCeccagno) | 🎨 [Behance](https://www.behance.net/raul-ceccagno) | 📌 [Pinterest](https://br.pinterest.com/RaulCeccagno/)
 
 ---
 
