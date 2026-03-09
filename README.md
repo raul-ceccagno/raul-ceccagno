@@ -8,7 +8,7 @@
 ## 🎯 Perfil e Objetivo Profissional
 Sou um profissional maduro e multifacetado, combinando graduação em Gestão Financeira com formação técnica em Magistério. Possuo sólido histórico de 9 anos de estabilidade como servidor público municipal na CODECA, o que atesta minha disciplina, ética e responsabilidade.
 
-Atualmente, busco oportunidades de **meio turno (20h semanais)**, prioritariamente na área da **Educação (Regência de Anos Iniciais, Educação Infantil ou Apoio Pedagógico/Cuidador)**, para aplicar minha capacidade de organização e mediação de conflitos. Paralelamente, minha bagagem analítica me permite atuar com eficiência em rotinas administrativas, de custos e produção.
+Disponibilidade tanto em frentes presenciais quanto home offices e flexibilidade total com jornadas de trabalho, tanto na área da **Educação (Regência de Anos Iniciais, Educação Infantil ou Apoio Pedagógico/Cuidador)**, para aplicar minha capacidade de organização e mediação de conflitos, quanto rotinas administrativas, de custos e produção, onde minha bagagem analítica me permite atuar com eficiência.
 
 ---
 
