@@ -19,7 +19,7 @@ Paralelamente, atuo como Curador de Inteligência Artificial, investigando como 
 
 ## 📝 Artigos e Publicações (Visão Profissional)
 
-* 
+* Por que o Magistério deveria ser obrigatório (mesmo que você nunca pise em uma sala de aula) https://raul-ceccagno.medium.com/por-que-o-magist%C3%A9rio-deveria-ser-obrigat%C3%B3rio-mesmo-que-voc%C3%AA-nunca-pise-em-uma-sala-de-aula-c5c696e92fc5
 
 * 🔗 [A Intersecção entre Gestão Financeira e Magistério: Organizando Processos e Pessoas](https://medium.com/@raul.ceccagno/a-intersec%C3%A7%C3%A3o-entre-gest%C3%A3o-financeira-e-magist%C3%A9rio-organizando-processos-e-pessoas-fde569b46c45)
 
