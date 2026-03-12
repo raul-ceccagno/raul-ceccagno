@@ -1,7 +1,7 @@
 # Raul Monteiro Ceccagno
 **Especialista em Custos, PCP e Processos Industriais | Educador (Magistério) | Curador de Inteligência Artificial**
 
-📍 Caxias do Sul, RS | 📧 raul.ceccagno@gmail.com 
+📍 Caxias do Sul, RS | 📧 raul@whichaitobuy.com 
 
 🌐 [Meu Hub Oficial](https://raul.whichaitobuy.com/) | 💼 [LinkedIn](https://www.linkedin.com/in/raul-ceccagno) | 📝 [Medium](https://raul-ceccagno.medium.com/) | 🐦 [X (Twitter)](https://x.com/RaulCeccagno) | 🎨 [Behance](https://www.behance.net/raul-ceccagno) | 📌 [Pinterest](https://br.pinterest.com/RaulCeccagno/)
 
